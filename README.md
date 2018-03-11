@@ -4,9 +4,9 @@
 ## Số điện thoại: 01637891366
 ## Bản thân:
 - **Vui vẻ hòa đồng**
-- **Thích thể thao:**
-**1. Bóng đá**
-**2. Bóng chuyền**
+- **Thích thể thao:**</br>
+**1. Bóng đá**</br>
+**2. Bóng chuyền**</br>
 **3. Cầu lông**
 - **Yêu ca hát**
 
