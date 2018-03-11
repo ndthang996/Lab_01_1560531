@@ -2,7 +2,7 @@
 ## Họ tên: Nguyễn Đức Thắng
 ## Email: 1560531@student.hcmus.edu.vn
 ## Số điện thoại: 01637891366
-## Bản thân:
+## Giới thiệu bản thân:
 - **Vui vẻ hòa đồng**
 - **Thích thể thao:**</br>
 **1. Bóng đá**</br>
