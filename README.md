@@ -9,7 +9,6 @@
 **2. Bóng chuyền**
 **3. Cầu lông**
 - **Yêu ca hát**
-
 ##Thời khóa biểu:
 
 |Giờ BĐ - Giờ KT|Tiết|Thứ 2|       Thứ 3      |             Thứ 4             |            Thứ 5            |          Thứ 6         |              Thứ 7              |
